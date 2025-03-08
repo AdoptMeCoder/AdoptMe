@@ -1,4 +1,4 @@
-# Adopt Me Script 🐾 - Pet Spawner, Auto Farm, Infinite Money & More | No Key 2025
+# Adopt Me Script 🐾 Pet Spawner, Auto Farm, Infinite Money & More | No Key 2025
 
 ### [🐶 Download Adopt Me Script 🐶](https://cheatheaven.org/go/adopt-me-script/)
 
